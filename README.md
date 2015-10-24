@@ -51,7 +51,7 @@ Stir all ingredients in the crock pot. Stroke beard and say things like: "mmmmm,
 
 Cook on low for 2-3 hours. Stir occasionally. Finish off open beer.
 
-** Wash your nasty hands before you dip your dirty finger in the pot**
+**Wash your nasty hands before you dip your dirty finger in the pot**
 
 Serve with sour cream and cheddar cheese.
 
