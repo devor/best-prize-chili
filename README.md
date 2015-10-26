@@ -10,7 +10,7 @@
 - 2 lbs HOT Jimmy Dean Sausage
 - 1/4 pounds of bacon
 - 1 large yellow onion
-- 4 pablano peppers
+- 4 poblano peppers
 - 2 red bell peppers
 - 2 _(28 oz)_ cans diced tomatoes
 - 1 _(14 oz)_ can tomato paste
@@ -41,7 +41,7 @@ Cook Steak in sausage grease, at medium to high temp, strain and stir frequently
 
 Cook Bacon until crispy but not burnt, crumble and add to crock pot. Save bacon grease for veggies.
 
-Remove the seeds from the peppers. Dice the onion, pablano, and red peppers into large chunks (1 inch). Cook in bacon grease until semi soft. You want to release some of the water, but you dont want them mushy. Strain really well, and add to crock pot.
+Remove the seeds from the peppers. Dice the onion, poblano, and red peppers into large chunks (1 inch). Cook in bacon grease until semi soft. You want to release some of the water, but you dont want them mushy. Strain really well, and add to crock pot.
 
 Strain both cans of diced tomatos. Add diced tomatos and tomato paste to crock pot.
 
