@@ -18,9 +18,9 @@
 - 1/2 beer (Founders porter works well)
 - 1/2 cup chili powder
 - 3 tbsp worcestershire sauce
-- 3 tbsp minced garlic
-- 2 tbsp paprika
-- 2 tbsp liquid smoke
+- 2 tbsp minced garlic
+- 1 tbsp paprika
+- 1 tbsp liquid smoke
 - 1 tbsp dried oregano
 - 1 tbsp dried basil
 - 1 tbsp hot pepper sauce (tabasco chipotle)
