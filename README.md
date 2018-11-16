@@ -1,7 +1,10 @@
-# Best Prize Chili
+# Best Prize Chili Recipe
 
-2015 Dynamit Chili Cookoff Best Prize Award Winning Chili
+### Awards
+2015 Dynamit Chili Cookoff Best Prize Award Winning Chili (Dave Devor)
+2018 Dynamit Chili Cookoff Best Prize Award Winning Chili (Kurt Stephens)
 
+### Reviews
 > This is the best freakin' chili I've ever had, in my entire life, ever. - _Hullom_
 
 
