@@ -11,7 +11,7 @@
 ### Ingredients
 - 3 lbs beef chuck steak
 - 2 lbs HOT Jimmy Dean Sausage
-- 1/4 pounds of bacon
+- 1/4 - 1/2 pounds of bacon 
 - 1 large yellow onion
 - 4 poblano peppers
 - 2 red bell peppers
